@@ -1,1 +1,2 @@
 # kodluyoruzilkrepo
+![google fotograf](https://www.google.com.tr/search?q=gs+foto&sxsrf=AOaemvLbBGuhxZ9xAzRRGmTVYbVI-h-kjw:1631129584309&tbm=isch&source=iu&ictx=1&fir=9EM2aJYROLptgM%252CgUDFPiXIJ4NHNM%252C_&vet=1&usg=AI4_-kRwjca-5hasUDkmj2XHMsNq_sMAxA&sa=X&ved=2ahUKEwieydGbj_DyAhUXg_0HHQbrCMgQ9QF6BAgREAE&biw=1280&bih=619#imgrc=9EM2aJYROLptgM)
